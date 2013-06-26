@@ -7,9 +7,6 @@ What do you call a bagel that flies?
 How do you protect your bagel?
 - Put lox on it.  
 
-What do you call a boomerang that doesn't come back?
-- A stick.  
-
 A pirate walks into a bar with a ship's steering wheel stuck to the front of his pants. The bartender asks, "Hey, doesn't that hurt?" The pirate growls, "Aye, it's drivin' me nuts."  
 
 Why does a chicken coop only have 2 doors?
