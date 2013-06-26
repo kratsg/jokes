@@ -195,4 +195,41 @@ Them: confused silence
 
 Whoever invented knock knock jokes should get a no bell prize.
 
+Why does a hamburger have lower energy than a sirloin? Because it's in the ground state.
+
+How many physicists specializing in general relativity do you need to change a lightbulb? Two. One to hold the lightbulb, one to rotate the damn universe.
+
+What happens when light is a bit too obtuse? It ends up in a prism.
+
+Don't believe quarks - they make up everything.
+
+Why is the contour integral around Western Europe zero? All the poles are in Eastern Europe.
+
+It is said that papers in string theory are published at a rate greater than the speed of light. This, however, is not problematic since no information is being transmitted.
+
+How many string theorists does it take to play hide and seek? 10^500 + 1 … so that there exists at least one universe with two people in it.
+
+What do string theorists use to preserve their dignity? G-strings.
+
+What do undead string theorists crave?
+Braaaaaaaaaaaaaaanes
+
+What happens when two string theorists start arguing?
+Branes collide.
+
+Why do QFTists have bad eyes?
+They only see bare (m)asses up close.
+
+What did the physicist do after he knocked the burning candle over?
+Wick rotation.
+
+Some famous mathematician was to give a keynote speech at a conference. When he was asked for an advance summary, he said he would present a proof of Fermat's Last Theorem -- but they shouldn't announce it. Although when he arrived, he spoke on a much more prosaic topic. Afterwards the conference organizers asked why he said he'd talk about the theorem and then didn't. He replied that this was his standard practice, just in case he was killed on the way to the conference.
+
+What is the following?
+
+    ea,ea,ea,ea, ...     ea,ea,ea,ea, ...      ea,ea,ea,ea, ...      ea,ea,ea,ea, ..
+
+A Fourier series.
+
+
 
