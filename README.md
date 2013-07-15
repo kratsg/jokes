@@ -241,5 +241,82 @@ Some famous mathematician was to give a keynote speech at a conference. When he 
 What is the following? ea,ea,ea,ea, ...     ea,ea,ea,ea, ...      ea,ea,ea,ea, ...      ea,ea,ea,ea, ..
 - A Fourier series.  
 
+Q: What does the "B" in Benoit B. Mandelbrot stand for?
+A: Benoit B. Mandelbrot.
+
+What's good anagram of Banach-Tarski?
+Banach-Tarski Banach-Tarski.
+
+Why did the function cross the road? Because it was defined on both sides and continuous.
+
+I do not believe in the axiom of choice.
+
+Jean-Paul Sartre is sitting at a French cafe, revising his draft of Being and Nothingness. He says to the waitress, "I'd like a cup of coffee, please, with no cream." The waitress replies, "I'm sorry, Monsieur, but we're out of cream. How about with no milk?"
+
+It's hard to explain puns to kleptomaniacs because they always take things literally.
+- I don't get it but I'm stealing this one.
+
+Who does Polyphemus hate more than Odysseus?
+Nobody!
+
+A physicist, a mathematician and an engineer were each asked to establish the volume of a red rubber ball.
+The physicist immersed the ball in a beaker full of water and measured the volume of the displaced fluid. The mathematician measured the diameter and calculated a triple integral. The engineer asked if anyone had the Red Rubber Ball Volume Table, he only had Blue and Purple editions.
+
+Pavlov is sitting at a pub enjoying a pint, the phone rings and he jumps up shouting "oh shit, I forgot to feed the dog!"
+
+Did you hear about the jurisprudence fetishist? He got off on technicality...
+
+Standard deviation not enough for perverted statistician.
+
+Werner Heisenberg, Kurt Gödel, and Noam Chomsky walk into a bar. Heisenberg turns to the other two and says, "Clearly this is a joke, but how can we figure out if it's funny or not?" Gödel replies, "We can't know that because we're inside the joke." Chomsky says, "Of course it's funny. You're just telling it wrong."
+
+I'd tell you a UDP joke, but you may not get it.
+
+I prefer IP jokes; it's all in the delivery.
+
+I could tell you a joke about TCP, but I'd have to keep repeating it until you got it.
+
+An Irishman goes to a building site for his first day of work, and a couple of Englishmen think, "Ah, we'll have some fun with him!" So they walk up and say, "Hey, Paddy, as you're new here make sure you know a joist from a girder..." "Ah, sure, I knows" says Paddy, "twas Joyce wrote Ulysses and Goethe wrote Faust."
+
+A physicist, a mathematician and an engineer stay in a hotel.
+The engineer is awakened by a smell and gets up to check it. He finds a fire in the hallway, sees a nearby fire extinguisher and after extinguishing it, goes back to bed.
+Later that night, the physicist gets up, again because of the smell of fire. He quickly gets up and sees the fire in the hallway. After calculating air pressure, flame temperature and humidity as well as distance to the fire and projected trajectory, he extinguishes the fire with the least amount of fluid.
+The mathematician awakens, and finds another fire in the hallway. He looks out the door, then goes back to bed. The house ends up burning down, but the physicist and engineer manages to save the mathematician. When asked why he didn't put out the fire, he says: "I saw the fire, I saw the extinguisher, the solution was trivial."
+
+Two women walk into a bar, and talk about the Bechdel test.
+
+A man is on his first visit to Boston, and he wants to try some of that delicious New England seafood that he'd long heard about. So he gets into a cab, and asks the driver, "Can you take me to where I can get scrod?" The driver replies, "I've heard that question a thousand time, but never in the pluperfect subjunctive."
+
+Entropy isn't what it used to be.
+Entropy: Shit breaks.
+(From a Statics class): Shit don't move.
+Newton's Third Law: Shit hits back.
+First Law of Thermodynamics: You can't win.
+Second Law of Thermodynamics: You can't break even.
+Third Law of Thermodynamics: You can't stop playing.
+
+A biologist, a chemist, and a statistician are out hunting. The biologist shoots at a deer and misses 5ft to the left, the chemist takes a shot and misses 5ft to the right, the statistician yells "We got 'em!"
+
+There are only two hard things in Computer Science: cache invalidation, naming things, and off-by-one errors.
+
+Similarly, there are two types of people in the world: Those who can extrapolate from incomplete data sets
+
+There are two types of people in the world: Those who crave closure
+
+Two kittens on a sloped roof. Which one slides off first?
+The one with the lowest mew.
+
+"I'm a linguist, so I like ambiguity more than most people."
+
+Did you hear about the man who got cooled to absolute zero?
+He's 0K now.
+
+A Photon checks into a hotel and the bellhop asks him if he has any luggage. The Photon replies "No I'm traveling light."
+
+A hundred kilopascals go into a bar.
+
+A logician's wife is having a baby. The doctor immediately hands the newborn to the dad.
+His wife asks impatiently: "So, is it a boy or a girl" ?
+The logician replies: "yes".
 
 
