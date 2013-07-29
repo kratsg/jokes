@@ -319,4 +319,20 @@ A logician's wife is having a baby. The doctor immediately hands the newborn to 
 His wife asks impatiently: "So, is it a boy or a girl" ?
 The logician replies: "yes".
 
+I tried to catch some fog. I mist.
 
+When chemists die, they barium.
+
+Jokes about German sausage are the wurst.
+
+A soldier who survived mustard gas and pepper spray now a seasoned veteran.
+
+I know a guy who's addicted to brake fluid. He says he can stop anytime he wants.
+
+How does Moses make his tea? Hebrews it.
+
+I stayed up all night to see where the sun went. Then it dawned on me.
+
+This girl said she recognized me from the vegetarian meetup, but I'd never met herbivore.
+
+I'm reading a book about anti-gravity, but I just can't put it down.
