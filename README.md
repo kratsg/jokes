@@ -336,3 +336,39 @@ I stayed up all night to see where the sun went. Then it dawned on me.
 This girl said she recognized me from the vegetarian meetup, but I'd never met herbivore.
 
 I'm reading a book about anti-gravity, but I just can't put it down.
+
+I did a theatrical performance about puns. It was a play on words.
+
+They told me I had type A blood, but it was a type-O.
+
+This dyslexic man walks into a bra.
+
+PMS jokes aren't funny, period.
+
+I didn't like my beard at first, but then it grew on me.
+
+A cross-eyed teacher lost her job because she couldn't control her pupils.
+
+When you get a bladder infection, urine trouble.
+
+What does a clock do when it's hungry? It goes back four seconds.
+
+I wondered why the baseball was getting bigger. Then it hit me!
+
+Broken pencils are pointless.
+
+What do you call a dinosaur with an extensive vocabulary? A thesaurus.
+
+England has no kidney bank, but it does have a Liverpool.
+
+I used to be a banker, but then I lost interest.
+
+I dropped out of communism class because of lousy Marx.
+
+All the toilets in London police stations have been stolen. Police say they have nothing to go on.
+
+I took the job at a bakery because I kneaded dough.
+
+Velcro - what a rip off!
+
+Cartoonist found dead in home. Details are sketchy.
