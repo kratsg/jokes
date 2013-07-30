@@ -372,3 +372,6 @@ I took the job at a bakery because I kneaded dough.
 Velcro - what a rip off!
 
 Cartoonist found dead in home. Details are sketchy.
+
+If you get your electronics wet, leave them out in a bowl of rice overnight. The rice will attract asians who will come and fix your electronics.
+
