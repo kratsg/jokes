@@ -376,3 +376,5 @@ Cartoonist found dead in home. Details are sketchy.
 If you get your electronics wet, leave them out in a bowl of rice overnight. The rice will attract asians who will come and fix your electronics.
 
 I can cut a piece of wood in half just by looking at it. It's true, I saw it with my own eyes!
+
+I am friends with 25 letters of the alphabet. I don't know Y.
