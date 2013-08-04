@@ -378,3 +378,17 @@ If you get your electronics wet, leave them out in a bowl of rice overnight. The
 I can cut a piece of wood in half just by looking at it. It's true, I saw it with my own eyes!
 
 I am friends with 25 letters of the alphabet. I don't know Y.
+
+Why is Peter Pan always flying? Because he never lands. I like this joke because it never gets old.
+
+Whoever stole my copy of Microsoft Office, you're in big trouble. I'm gonna hunt you down, you have my Word.
+
+When people say they sleep like a log, it confuses me. Logs don't sleep, they sLumber.
+
+My roommate just said, "Your obsession with cats is totally out of control, so I've packed your bags." I think they're kicking meeeowt.
+
+How do you organize a space party? You planet.
+
+A women was checked into a hospital because she couldn't stop shouting: "'Twas, They'll, We're, Isn't" over and over again. The doctor diagnosed her with contractions.
+
+What did the pig say when he was suntanning in the desert? I'm bacon out here.
