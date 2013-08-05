@@ -394,3 +394,5 @@ A women was checked into a hospital because she couldn't stop shouting: "'Twas, 
 What did the pig say when he was suntanning in the desert? I'm bacon out here.
 
 Caltech was the best. The academic clubs, the dorms, the guys, the girl.
+
+I'll stop at nothing to avoid using negative numbers.
