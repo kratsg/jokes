@@ -392,3 +392,5 @@ How do you organize a space party? You planet.
 A women was checked into a hospital because she couldn't stop shouting: "'Twas, They'll, We're, Isn't" over and over again. The doctor diagnosed her with contractions.
 
 What did the pig say when he was suntanning in the desert? I'm bacon out here.
+
+Caltech was the best. The academic clubs, the dorms, the guys, the girl.
