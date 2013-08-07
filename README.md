@@ -389,7 +389,7 @@ My roommate just said, "Your obsession with cats is totally out of control, so I
 
 How do you organize a space party? You planet.
 
-A women was checked into a hospital because she couldn't stop shouting: "'Twas, They'll, We're, Isn't" over and over again. The doctor diagnosed her with contractions.
+A woman was checked into a hospital because she couldn't stop shouting: "'Twas, They'll, We're, Isn't" over and over again. The doctor diagnosed her with contractions.
 
 What did the pig say when he was suntanning in the desert? I'm bacon out here.
 
