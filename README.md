@@ -396,3 +396,6 @@ What did the pig say when he was suntanning in the desert? I'm bacon out here.
 Caltech was the best. The academic clubs, the dorms, the guys, the girl.
 
 I'll stop at nothing to avoid using negative numbers.
+
+I was going to not put up a pun for a while... but then I realized 7 days without puns makes one weak.
+
