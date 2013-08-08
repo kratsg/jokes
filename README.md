@@ -399,3 +399,31 @@ I'll stop at nothing to avoid using negative numbers.
 
 I was going to not put up a pun for a while... but then I realized 7 days without puns makes one weak.
 
+Never let your man's mind wander. It's too little to be out on its own. 
+ 
+Men are like lava lamps. Fun to look at, but not too bright. 
+ 
+How many honest, intelligent, caring men in the world does it take to do the dishes? Both of them.
+
+Why don’t women blink during foreplay? They don’t have time.
+
+Why does it take 1 million sperm to fertilize one egg? Even at that stage they won’t stop to ask directions.
+
+Why is it difficult to find men who are sensitive, caring and good looking? They all already have boyfriends.
+
+How did Pinocchio find out he was made of wood? His hand caught fire.
+
+How many men does it take to screw in a light bulb? One......He just holds it up there and waits for the world to revolve around him.
+
+What did God say after creating man? I can do so much better.
+
+What do you call a man with half a brain?  Gifted.
+
+Why is it good that there are female astronauts? When the crew gets lost in space, the woman will ask for directions.
+
+What should you give a man who has everything?  A woman to show him how to work it.
+ 
+Why are all dumb blonde jokes one-liners?  So men can understand them.
+
+
+
