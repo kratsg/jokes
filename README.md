@@ -425,5 +425,70 @@ What should you give a man who has everything?  A woman to show him how to work 
  
 Why are all dumb blonde jokes one-liners?  So men can understand them.
 
+Those who jump off a bridge in Paris are in Seine.
+ 
+A backward poet writes inverse.
+ 
+A man's home is his castle, in a manor of speaking.
+ 
+Dijon vu: the same mustard as before.
+ 
+Practice safe eating - always use condiments.
+ 
+Shotgun wedding: A case of wife or death.
+ 
+A man needs a mistress just to break the monogamy.
+ 
+A hangover is the wrath of grapes.
+ 
+Dancing cheek-to-cheek is really a form of floor play.
+ 
+Does the name Pavlov ring a bell?
+ 
+Condoms should be used on every conceivable occasion.
+ 
+Reading while sunbathing makes you well red.
+ 
+When two egotists meet, it's an I for an I.
+ 
+A bicycle can't stand on its own because it is two tired.
+ 
+What's the definition of a will? (It's a dead giveaway.)
+ 
+In democracy your vote counts. In feudalism your count votes.
+ 
+She was engaged to a boyfriend with a wooden leg but broke it off.
+ 
+A chicken crossing the road is poultry in motion.
+ 
+If you don't pay your exorcist, you get repossessed.
+ 
+With her marriage, she got a new name and a dress.
+ 
+When a clock is hungry, it goes back four seconds.
+ 
+The man who fell into an upholstery machine is fully recovered.
+ 
+You feel stuck with your debt if you can't budge it.
+ 
+Local Area Network in Australia: the LAN down under.
+ 
+He broke into song because he couldn't find the key.
+ 
+Every calendar's days are numbered.
+ 
+A lot of money is tainted - It taint yours and it taint mine.
+ 
+A boiled egg in the morning is hard to beat.
+ 
+A plateau is a high form of flattery.
+ 
+A midget fortune-teller who escapes from prison is a small medium at large.
+ 
+Once you've seen one huge shopping center, you've seen a mall.
+ 
+Bakers trade bread recipes on a knead-to-know basis.
+ 
+Acupuncture is a jab well done.
 
 
