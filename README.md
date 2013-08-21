@@ -492,3 +492,19 @@ Bakers trade bread recipes on a knead-to-know basis.
 Acupuncture is a jab well done.
 
 Some of the gouda cheesy jokes are just brie-liant. These puns are killing you? I'm such a meunster!
+
+"I see," said the blind carpenter, as he picked up his hammer and saw.
+
+Did you hear about the guy who was dangling a rope down from the highway overpass?! The rope got caught on a truck and the guy's arm came right off. The truck driver was charged with armed robbery.
+
+I can see a boat, canoe?
+
+Do you know how many people are dead in that cemetery? All of them.
+
+Why do they put fences around cemeteries? Because people are dying to get in.
+
+Don't drop that cabbage - otherwise, heads will roll!
+
+What's black and white and eats like a horse? A zebra.
+
+
