@@ -77,16 +77,16 @@ A three legged dog walks into a bar and says " I'm looking for the man that shot
 
 A sandwich walks into a bar, looks at the bartender and says, "Gimme a whiskey, neat." Bartender says, "Sorry sir, we don't serve food here."  
 
-A grasshopper walks into a bar. The bartender says "Hey, we've got a drink named after you." Grasshopper says "You've got a drink named Steve?"  
+A grasshopper walks into a bar. The bartender says "Hey, we've got a drink named after you." Grasshopper says "You've got a drink named Steve?"
 
 How much does a pirate pay for corn?
 - A-buck-an-ear  
 
 What's a pirate's favourite letter?
-- You think it's the "R" but it's really the "C".  
+- You think it's the "R" but it's really the "C".
 
 Why does it take pirates so long to learn the alphabet?
-- Because they can spend years at "C".  
+- Because they can spend years at "C".
 
 "What's a pirate's favorite branch of the military?"
 Naturally the person says, "Oh the Arrrrrrrmy"
@@ -94,19 +94,19 @@ This is when you become serious and say something along the lines of, "Uh, no, i
 
 What's a pirate's favourite crime?"
 "Arrrrson," I said, chuckling at my cleverness.
-"You idiot," he replied, "it's obviously Piracy."  
+"You idiot," he replied, "it's obviously Piracy."
 
 What's red and bad for your teeth?
-- A brick.  
+- A brick.
 
 How do you get a dog to stop barking in the front seat?
-- Put him in the back seat.  
+- Put him in the back seat.
 
 Why does Dr. Pepper come in bottles?
-- Because his wife died.  
+- Because his wife died.
 
 What does a nosy pepper do?
-- Get jalapeno buisness.  
+- Get jalapeno buisness.
 
 What do you call a man with no arms and no legs in a pile of leaves?
 - Russell
@@ -115,25 +115,25 @@ What do you call a man with no arms and no legs in the middle of a lake?
 - Bob
 
 What do you call a man with no arms and no legs water skiing?
-- Skip.
+- Skip
 
 What do you call a man with no arms and no legs, and is hanging on a wall?
 - Art
 
 What do you call a man with no arms and no legs laying in front of a door?
-- Matt.
+- Matt
 
 What do you call a woman with one leg?
-- Eileen.
+- Eileen
 
 What do you call an asian woman with one leg?
-- Irene.
+- Irene
 
 What do you call a leper in a hot tub?
-- Stu.
+- Stu
 
 What do you call a man with no arms and no legs driving a car?
-- Rex.
+- Rex
 
 What do you call a man with no arms and no legs 12 feet under the earth?
 - Doug
@@ -142,13 +142,13 @@ What about 6 feet under the earth?
 - Douglas
 
 What's the one legged girls favorite restaurant?
-- Ihop.
+- Ihop
 
 What do you call a guy who is in a meat grinder?
 - Chuck
 
 What do you call a dog with no arms and no legs?
-- Who gives a shit, he ain't coming.  
+- Who gives a shit, he ain't coming. 
 
 Two fish are in a tank. One turns to the other and says, "how do you drive this thing?"  
 
