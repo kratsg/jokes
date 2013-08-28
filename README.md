@@ -507,4 +507,6 @@ Don't drop that cabbage - otherwise, heads will roll!
 
 What's black and white and eats like a horse? A zebra.
 
+When Satan starts going bald there's going to be Hell toupee.
+
 
