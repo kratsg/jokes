@@ -509,4 +509,62 @@ What's black and white and eats like a horse? A zebra.
 
 When Satan starts going bald there's going to be Hell toupee.
 
+What's the unit of Power?
+
+Your mama is so unfamiliar with the gym, she call it James.
+
+A German walks into a bar and orders a martini. The bartender says "dry?" The German replies "Nein, just one."
+
+Julius Caesar walks into a bar and says "I'll have a martinus." The bartender says "Don't you mean martini?" Caesar replies "Damn it, if I wanted a double I'd ask for it."
+
+The farmer was counting his cows when they were all out grazing in the field. He counted 196, but when he rounded them up he had 200.
+
+Two parrots standing on a perch, one says to the other "Can you smell fish?"
+
+Is it solipsistic in here or is it just me?
+
+A programmer heads out to the store. His wife says, "while you're out, get some milk." He never came home.
+
+How many programmers does it take to change a light bulb? None. It's a hardware problem.
+
+Why do Marxists drink herbal tea? Because all proper tea is theft.
+
+Why do elephants paint their toenails red? So they can hide in cherry trees. Have you ever seen an elephant in a cherry tree? No? Then it works.
+
+How do you fit an elephant into a Safeway bag? You take the 's' out of 'safe' and the 'f' out of 'way'.
+
+Did you hear about the jurisprudence fetishist? He got off on a technicality.
+
+What's the difference between a pickpocket and a peeping tom? A pickpocket snatches watches.
+
+Difference between women coming out of church and women coming out of the bath? Church women have hope in their souls.
+
+Difference between circus and strip club? Circus is full of cunning stunts.
+
+A gorgeous blonde walks up to the barman and orders a Double Entendre, so he gives it to her.
+
+What's the best part about living in Switzerland? I don't really know, but the flag is a big plus.
+
+A friend of mine asked me, "If you could have any super power in the world, what would it be?" I said, "cold war Russia."
+
+I was going to tell a Jonestown joke, but the punchline was too long.
+
+Birthday parties get shorter the older you get. My 62nd birthday party was only one minute long.
+
+Q. Three men are in a boat. They have four cigarettes with them, but no match. How do they smoke? A. They toss one overboard, to make the boat a cigarette lighter.
+
+I was walking through the cemetery and saw a guy crouching behind a tombstone. I said, "Morning..". He said, "No. Taking a shit."
+
+I was in a nightclub the other day and a guy started having an epileptic fit. Everyone was just stood there saying "look, he's having a fit". I said "why don't you take a picture, it'll last longer".
+
+There are 10 types of people in the world: Those who understand binary, those who don't and those who don't expect a joke in base three.
+
+Traveling salesman always wanted to go to Boston so he could eat fresh scrod. Finally he gets sent there, so when he gets in the cab at Logan, he asks the cabbie "Do you know where a guy can get scrod around here?"
+
+If I were gneiss would you take me for granite?
+
+There are two types of people, those who extrapolate from incomplete data sets.
+
+There was a prison break and I saw a midget climb up the fence, and as he jumped down he sneered at me and I thought, well that's a little condescending.
+
 
