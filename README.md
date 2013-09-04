@@ -567,4 +567,6 @@ There are two types of people, those who extrapolate from incomplete data sets.
 
 There was a prison break and I saw a midget climb up the fence, and as he jumped down he sneered at me and I thought, well that's a little condescending.
 
+Fruitpicking makes for a great outing. Especially if they're dates.
+
 
