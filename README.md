@@ -569,4 +569,6 @@ There was a prison break and I saw a midget climb up the fence, and as he jumped
 
 Fruitpicking makes for a great outing. Especially if they're dates.
 
+The best way to quit being vegan is cold turkey.
+
 
