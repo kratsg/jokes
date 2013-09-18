@@ -571,4 +571,6 @@ Fruitpicking makes for a great outing. Especially if they're dates.
 
 The best way to quit being vegan is cold turkey.
 
+I'm inventing a new glue and naming it James Bond. It's a chemical Agent. Don't sniff it though, it has incense to kill.
+
 
