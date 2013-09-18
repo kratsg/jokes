@@ -573,4 +573,6 @@ The best way to quit being vegan is cold turkey.
 
 I'm inventing a new glue and naming it James Bond. It's a chemical Agent. Don't sniff it though, it has incense to kill.
 
+What's the difference between a piano, a tuna, and a pot of glue? You can tune a piano, but you can't piano a tuna. "What about the glue?" I knew you'd get stuck there.
+
 
