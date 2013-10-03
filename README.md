@@ -575,4 +575,6 @@ I'm inventing a new glue and naming it James Bond. It's a chemical Agent. Don't 
 
 What's the difference between a piano, a tuna, and a pot of glue? You can tune a piano, but you can't piano a tuna. "What about the glue?" I knew you'd get stuck there.
 
+What if "soy milk" is just regular milk introducing itself in Spanish?
+
 
