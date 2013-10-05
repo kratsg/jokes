@@ -577,4 +577,6 @@ What's the difference between a piano, a tuna, and a pot of glue? You can tune a
 
 What if "soy milk" is just regular milk introducing itself in Spanish?
 
+I'd give my left arm to be ambidextrous.
+
 
