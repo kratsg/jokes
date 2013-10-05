@@ -579,4 +579,8 @@ What if "soy milk" is just regular milk introducing itself in Spanish?
 
 I'd give my left arm to be ambidextrous.
 
+Did you guys hear about the kidnapping at UChicago today? It's ok, he woke up.
+
+
+
 
