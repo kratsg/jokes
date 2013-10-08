@@ -589,7 +589,7 @@ Spring is here. I'm so excited, I wet my plants.
 
 Does anyone want a .rar file of the WinRar installer?
 
-Singing in the shower is all fun and games until you get shampoo in your mouth. And then it becomes a soap opera.
+Singing in the shower is all fun and games until you get shampoo in your mouth. And then it becomes a soap opera. You might just become a soaprano.
 
 
 
