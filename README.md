@@ -578,9 +578,12 @@ What's the difference between a piano, a tuna, and a pot of glue? You can tune a
 What if "soy milk" is just regular milk introducing itself in Spanish?
 
 I'd give my left arm to be ambidextrous.
+
 Why did Ariel wear seashells? Because she outgrew her B-shells.
 
 Did you guys hear about the kidnapping at UChicago today? It's ok, he woke up.
+
+The secret to enjoying a good wine: open the bottle and let it breathe. If it doesn't look like it's breathing, give it mouth-to-mouth.
 
 
 
