@@ -591,6 +591,8 @@ Does anyone want a .rar file of the WinRar installer?
 
 Singing in the shower is all fun and games until you get shampoo in your mouth. And then it becomes a soap opera. You might just become a soaprano.
 
+So they remade the Flintstones movie (the one with the Baldwin) and they're screening it in the United Arab Emirates... of all places. It seems the people in Dubai don't like it much, but the people in Abu Dhabi do!
+
 
 
 
