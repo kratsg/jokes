@@ -593,8 +593,9 @@ Singing in the shower is all fun and games until you get shampoo in your mouth. 
 
 So they remade the Flintstones movie (the one with the Baldwin) and they're screening it in the United Arab Emirates... of all places. It seems the people in Dubai don't like it much, but the people in Abu Dhabi do!
 
+Did you guys hear about the kidnapping at UChicago today? It's ok, he woke up.
 
-
+The secret to enjoying a good wine: open the bottle and let it breathe. If it doesn't look like it's breathing, give it mouth-to-mouth.
 
 
 
